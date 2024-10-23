@@ -1,9 +1,7 @@
 Dorian Cleveland, Olivia Dale, McKenna Natzke, Taylor Smith
 HIS 650: Graduate Practicum at Shaker Village:
 Public History and Digital History in Practice
-The Research Process of Tracking the Shaker Seed Trade
-
-through Newspaper Advertisements
+The Research Process of Tracking the Shaker Seed Trade through Newspaper Advertisements
 
 Summary of Project
 
